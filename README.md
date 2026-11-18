@@ -1,1 +1,2 @@
 # git_test
+yeah an other test that I'm trying out. man i need a small break just have been realising that. i've been learning a lot lately but that tool are heavy on learning for me. it's a struggle not gonna lie. but sometimes when a question gets answered the feeling is also very good. so many stories to tell with and about that tool.
